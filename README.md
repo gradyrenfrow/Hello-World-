@@ -3,4 +3,4 @@ A day full of firsts
 
 Grady here! 
 
-Just a Jock-Nerd looking to #getafterit 
+Just a Jock/Nerd looking to #getafterit 
